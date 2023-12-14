@@ -1,0 +1,4 @@
+#c and c++
+
+yeah guys this folder is for my c++ projects and stuff but mostly it's c now cause Aris wants me to learn c or something like I don't even know anymore but I'm just going along with it cause c doesn't have pp but wait I should
+do cpp because and only because c has pp no but I mean cpp has pp but it sees pp because it see pp idk anymore guys what should I do that's not a question it's rhetorical but anyway that's why I put c/c++ because I'm not sure also no I'm not gonna do d flat I mean C# because it's usually in d major or in b major which I guess d major is fine but b major is kinda difficult I'm ngl especially since it's just a major but 2 strings up which makes it even worse cause intonation errors sound way worse up there anyway yeah no C# idc that's it.
